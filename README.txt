@@ -1,0 +1,1 @@
+PriceHive is your go-to destination for efficient price comparison. Our website allows users to quickly search for products and compare prices across multiple retailers, streamlining the shopping experience and ensuring you get the best deal possible.
